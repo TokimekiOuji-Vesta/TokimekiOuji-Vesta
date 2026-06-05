@@ -34,7 +34,7 @@
 
 - ‎I’m an **INFP-T**, and I'm a bit *pessimistic*. I might sound or act negative sometimes, so if you’re not in the mood for that, feel free not to interact with me.
 
-- ‎I go by **any or all pronouns**. I’m **bisexual** and **aromantic.** I’m not taken, but I’m not in the right headspace for any kind of relationship right now.
+- ‎I go by **any or all pronouns**. I’m **genderfluid**, **bisexual** and **cupioromantic.** I’m not taken, but I’m not in the right headspace for any kind of relationship right now.
 
 </details>
 
