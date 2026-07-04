@@ -76,7 +76,7 @@
   
 - **For Pony Town**: Please read my display name before interacting! Sometimes I’ll have notes like *dniucf, dniup, dniuf,* or *iwc* written there—don’t be confused if I don’t interact much in those cases. If I don’t have any notes listed, feel free to approach me anytime! If I don’t respond right away, I’m likely AFK or off-tab; you can try *w2i* to get my attention. I sometimes only interact with people from the fandom I’m cosplaying as, unless I’m already familiar with your fandom too. C+H or any interaction is always welcome, unless I state otherwise. That’s all for this part!
 ‎
-- I’m a **Tamaki Yotsuba Riako** and *selective-sharing yumeshipper*, so I might not interact much with doubles—sorry about that in advance! Please check pronouns page for other yumes.
+- I'm a yumeshipper! Mostly selective-sharing and mirrorsharing, just check my pronouns page for info on that.
 ‎
 - If you want to add me on Discord or any other social media, please ask or let me know first so I recognize who you are. You’ll also need to message me personally to get my Discord username.
 ‎
