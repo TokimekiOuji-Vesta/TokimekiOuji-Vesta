@@ -26,7 +26,7 @@
 
 - ‎Call me **Yukio, Kio, or Yuki**. Pet names are reserved only for *my closest friends.* Nicknames are fine, but please don’t make them too weird, okay?...
 
-- ‎**I am currently under 18**, and I’ll only share my actual age if I’m comfortable with you or if we’re close already. **If you’re under 12 or over 20, please interact with caution**—unless I already know you or we’ve talked before.
+- ‎**I am currently under 18**, and I’ll only share my actual age if I’m comfortable with you or if we’re close already. **If you’re under 13 or over 20, please interact with caution**—unless I already know you or we’ve talked before.
 
 - ‎I was born on **August 11**, so I’m a Leo.
 
